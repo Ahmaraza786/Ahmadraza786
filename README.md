@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Mern Stack,Android Development,C#,UX/UI**
 
-- 📫 Mail **ahmadraza46789@gmail.com**
+- 📫 Mail **ahmadraza46790@gmail.com**
 
 - ⚡ I Love **Shopping,Movies,Travelling,Food**
 
